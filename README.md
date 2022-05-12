@@ -1,5 +1,6 @@
-- 👋 Hi, I’m @IamTree
-- 👀 I’m interested in dance and playing piano :)
+- 👋 Hi, I’m @Myylaa
+- 👀 I’m interested in dance :)
 - 🌱 I’m currently learning uh math
 - 💞️ I’m looking to collaborate on nothing
-- 📫 How to reach me: Tree (lovely)#6055 or @/treelovelyy on twitter
+- 📫 How to reach me: Myla 𓆩♡𓆪 Ana#6055 or @/treelovelyy on twitter
+- ⇩↦ Location is sweden. half irish
